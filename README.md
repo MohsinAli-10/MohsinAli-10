@@ -21,7 +21,7 @@ If you’re looking to **create the next big thing**, let’s connect and build 
 ---
 
 ### ✨ **Fun Fact**  
-⚡ **Over 180 certifications**? Yup, that's me! 🎓  
+⚡ **Over 200 certifications**? Yeap, that's me! 🎓  
 And when I’m not working on tech, I lace up my boots to play **semi-professional football**. ⚽️  
 I firmly believe **diverse experiences** fuel **creativity** and sharpen problem-solving skills. 
 
